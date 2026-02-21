@@ -1,1 +1,1 @@
-https://zeeross.com.mx
+https://zeeross.xyz
